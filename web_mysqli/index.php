@@ -1,5 +1,4 @@
-tý đẹp trai vlll
-tôi tên là tý đẹp trai
+tý ngu
 <IDOCTYPE html>
 <html lang-"en">
 <head>
