@@ -1,4 +1,4 @@
-tý đẹp trai vlll
+tý ngu
 tôi tên là tý đẹp trai
 <IDOCTYPE html>
 <html lang-"en">
